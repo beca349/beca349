@@ -1,4 +1,3 @@
 Hola les habla **Rebeca**, mejor conocida como **Beca**, espero les guste mi proyecto 🫶 
 
-🦋Soy una chica muy dedicada a mis proyectos🦋!
-![butterfly](https://tenor.com/pt-BR/view/butterfly-insect-heart-shape-heart-symbol-pink-gif-27199020)
+🦋Soy una chica muy dedicada a mis proyectos🦋![<div class="tenor-gif-embed" data-postid="27199020" data-share-method="host" data-aspect-ratio="1.16788" data-width="100%"><a href="https://tenor.com/view/butterfly-insect-heart-shape-heart-symbol-pink-gif-27199020">Butterfly Insect Sticker</a>from <a href="https://tenor.com/search/butterfly-stickers">Butterfly Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>].(https://tenor.com/pt-BR/view/butterfly-insect-heart-shape-heart-symbol-pink-gif-27199020).
