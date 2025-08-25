@@ -2,4 +2,4 @@ Hola les habla **Rebeca**, mejor conocida como **Beca**, espero les guste mi pro
 
 🦋Soy una chica muy dedicada a mis proyectos🦋 
 ![a group of purple butterflies are flying in the dark].(https://tenor.com/pt-BR/view/2-gif-1897182504117118698)
-<div class="tenor-gif-embed" data-postid="1897182504117118698" data-share-method="host" data-aspect-ratio="0.75" data-width="100%"><a href="https://tenor.com/view/2-gif-1897182504117118698">2 GIF</a>from <a href="https://tenor.com/search/2-gifs">2 GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img width="240" height="320" alt="image" src="https://github.com/user-attachments/assets/d0e8d949-5ee8-4519-9ac6-063f0ed4ee3d" />
